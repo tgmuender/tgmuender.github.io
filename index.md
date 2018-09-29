@@ -1,3 +1,3 @@
-### Support or Contact
+### Contact
 
 tgmuender@protonmail.com
